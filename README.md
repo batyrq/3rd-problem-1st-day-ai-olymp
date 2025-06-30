@@ -1,0 +1,1 @@
+# 3rd-problem-1st-day-ai-olymp
